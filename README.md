@@ -1,0 +1,1 @@
+# Analysis-of-Shikamaru-Nara-s-Strategic-Thinking-Pattern
